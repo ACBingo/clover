@@ -1,0 +1,1 @@
+[安装教程](https://www.cnblogs.com/acbingo/p/10474237.html)
